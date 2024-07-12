@@ -1,1 +1,1 @@
-is my first CV.
+https://W1rtel.github.io/rsschool-cv/cv
